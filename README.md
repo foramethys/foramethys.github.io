@@ -1,2 +1,0 @@
-# foramethys.github.io
-lol
